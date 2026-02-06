@@ -4,7 +4,7 @@
 Meu nome é Alessandra Perez, atualmente tenho 16 anos e estou aprendendo Desenvolvimento de Sistemas no curso tecnico do Sesi e SENAI. 
 Adoro filme, series e escutar musicas! prefiro nao colocar muitas informações aqui, porém vou deixar meu instagram pra quem quiser entrar em contato!
 
-✦ ✧ ✦ ✧ ✦ ✧✦ ✧ ✦ ✧ ✦✦ ✧ ✦ ✧ ✦ ✧✦ ✧ ✦ ✧ ✦✦ ✧ ✦ ✧ ✦ ✧✦ ✧ ✦ ✧ ✦✦ ✧ ✦ ✧ ✦ ✧✦ ✧ ✦ ✧ ✦✦ ✧ ✦ ✧ ✦ ✧✦ ✧ ✦ ✧ ✦✦ ✧ ✦ ✧ ✦ 
+✦ ✧ ✦ ✧ ✦ ✧✦ ✧ ✦ ✧ ✦✦ ✧ ✦ ✧ ✦ ✧✦ ✧ ✦ ✧ ✦✦ ✧ ✦ ✧ ✦ ✧✦ ✧ ✦ ✧ ✦✦ ✧ ✦ ✧ ✦ ✧✦ ✧ ✦ ✧ ✦✦ ✧ ✦ ✧ ✦ ✧✦ ✧ ✦ ✧ ✦✦ 
 
 ## cℴ𝓃𝓉𝒶𝒸𝓉 𝓂ℯ!
 - 𝓲𝓷𝓼𝓽𝓪𝓰𝓻𝓪𝓶: <https://www.instagram.com/allex.przz?igsh=MWs1czFnMnFqNjB3Nw==>
